@@ -1,9 +1,9 @@
-<img align="right" width="698" height="123" alt="faca" src="https://github.com/user-attachments/assets/b1aafeb1-46d9-4e86-b219-49bd96f345aa" />
+<img align="right" width="698" height="123" alt="faca" src="https://github.com/user-attachments/assets/27211afa-955d-4a33-847d-731ff652f31f" />
 
 <p align="center">
-<img width="1280" height="48" alt="divider3" src="https://github.com/user-attachments/assets/f6fb03ec-b0db-4556-9eb9-d73d2542366f" />
+<img width="1280" height="48" alt="divider3" src="https://github.com/user-attachments/assets/cacecba1-b8c3-47d6-b592-725d01c1daad" />
 <p align="center">
-<img width="1310" height="360" alt="azuretime3" src="https://github.com/user-attachments/assets/8cec26ce-4fb0-409d-a0b4-c1b695c3f104" />
+<img width="1310" height="360" alt="azuretime3" src="https://github.com/user-attachments/assets/72fbe9e5-8523-4a9a-95dc-be233dafe390" />
 </p>
 
 
@@ -18,14 +18,14 @@
   
 
 <p align="center">
-<img width="720" height="32" alt="divider1" src="https://github.com/user-attachments/assets/20a40a9d-884b-4eb3-95d6-65dcb332d1a5" />
+<img width="720" height="32" alt="divider1" src="https://github.com/user-attachments/assets/b63bcadb-538b-42f1-b58f-490dca56c105" />
 </p>
 
 
 
 
 
-<img align="left" width="325" height="359.5" alt="azuretime2" src="https://github.com/user-attachments/assets/56434dc1-2baa-4609-9655-3b43bc1b0114" /> 
+<img align="left" width="325" height="359.5" alt="azuretime2" src="https://github.com/user-attachments/assets/4ab632e4-9678-4694-b98e-ec4557e4db70" />
 
 ## ⏖﹒🎹﹒read me
 
@@ -47,8 +47,8 @@ byf ◞  i like slop gayslop brainrot retroslop playing robloxsslop 24/7
 
 
 <p align="center">
-<img width="716" height="24" alt="divider2" src="https://github.com/user-attachments/assets/6d54bc64-0fd8-4a3c-b6a8-593ae1d2ffb5" />
+<img width="716" height="24" alt="divider2" src="https://github.com/user-attachments/assets/1e078157-7787-4aef-98a2-6fa47f2d5efd" />
 </p>
 
-<img align="left" width="698" height="123" alt="espada" src="https://github.com/user-attachments/assets/f7d4bd6e-09b1-49a0-bc3a-cfc8213931f8" />
+<img align="left" width="698" height="123" alt="espada" src="https://github.com/user-attachments/assets/76574b00-25cd-421a-a982-a753d6517180" />
 
