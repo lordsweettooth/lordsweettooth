@@ -22,9 +22,6 @@
 </p>
 
 
-
-
-
 <img align="left" width="325" height="359.5" alt="azuretime2" src="https://github.com/user-attachments/assets/4ab632e4-9678-4694-b98e-ec4557e4db70" />
 
 ## ⏖﹒🎹﹒read me
