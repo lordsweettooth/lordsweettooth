@@ -10,7 +10,7 @@
 ##                 "you've seen the worst in me"
 
 <p align="center">
-ᶻz  🧂  ︶   spencer ◞  grace   ┈
+ᶻz  🧂  ︶   spencer ◞  devi   ┈
 <p align="center">
 ⸝⸝﹒  16  𓎢𓎟𓎟𓎡  he/him  🏛️
 </p>
@@ -38,7 +38,7 @@ i'm mostly offtab or w someone so w2i.  ❛  🐚
 
 𓎟𓎟  ﹒  int  :
 
-roblox, dandys (iwc), forsaken, blocktales, brawlR, frozen soul, hjd (iwc), phighting, chiikawa,
+roblox, dandys (iwc), die of death, blocktales, brawlR, frozen soul, hjd (iwc), phighting, chiikawa,
 combat initiation, madcom (iwc), ultrakill  ﹒  🎹
 
 
